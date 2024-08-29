@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **umer.m6968@gmail.com**
 
-- 📄 Know about my experiences [file:///C:/Users/hajiS/Downloads/Final-CV_UMER-SHAIKH.pdf](file:///C:/Users/hajiS/Downloads/Final-CV_UMER-SHAIKH.pdf)
+- 📄 Know about my experiences https://drive.google.com/drive/my-drive
 
 - ⚡ Fun fact **I am also a pro fifa gamer and also very funny.**
 
